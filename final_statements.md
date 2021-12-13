@@ -118,6 +118,9 @@ T大树洞虽然界面与北大树洞类似，每天夜里也都有守夜冠军�
 学生是社会中的弱势群体，为此我们不得不匿名运营树洞，每天在各方势力的夹缝中寻找生存的空间，小心翼翼地在各方矛盾中寻找平衡点。前任北大元培学院副院长李沉简教授曾说：Freedom is never free. **自由从来不是天上掉下来的，而是有骨气的人们付出沉重的代价换来的** ，胡适一辈子敢于批评蒋介石和国民党专制；马寅初坚持自己的学术观点，在批判之下拒不认错；林昭在疯狂的文革年代毫不退缩，只身和反人类的罪恶斗争到底，直至被枪杀。我们无法闪耀似先人，但任何一点微弱萤火，都可以投身进理想的火焰。 
 
 Where there is darkness, may we bring light 
+
 Where there is despair, may we bring hope 
+
 Where there is doubt, may we bring faith 
+
 Where there is hatred, may we bring love
